@@ -1,0 +1,1 @@
+添加备注: preaccounting_assignat
